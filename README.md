@@ -1,1 +1,1 @@
-# WordPress Theme- AQUA# aqua
+# WordPress Theme- AQUA
